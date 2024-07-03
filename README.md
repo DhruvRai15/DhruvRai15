@@ -1,5 +1,4 @@
-                                             Dhruv Rai
-                                          Data Analyst 
+                                             Dhruv Rai/ Data Analyst/ 9773921803
 🔭 I’m a life long learner, currently exploring more about Data Analytics!
 
 🌱 I’m currently learning and upskilling myself.
